@@ -2,7 +2,7 @@
 
 Name: Amos Kipngetich Rotich
 
-Student Pace: Part Time
+Student Pace: Parttime
 
 Scheduled Project Review Date/Time: September 1, 2024
 
